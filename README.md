@@ -1,1 +1,1 @@
-# blockchain name system assets / press kit
+# Assets / Press Kit
